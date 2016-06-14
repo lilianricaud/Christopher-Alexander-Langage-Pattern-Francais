@@ -2,8 +2,6 @@
 
 > *
 
-
-
 **Quand les bonnes pièces font face au sud une maison est brillante, ensoleillée et joyeuse; Quand les mauvaises pièces sont coté sud, la maison est sombre et déprimante.**
 
 _Par conséquent,_
@@ -14,5 +12,3 @@ _Par conséquent,_
 - sud-ouest au porche**
 
 **Pour la plupart des climats cela signifie que la forme du batiment est allongée est-ouest.**
-
-
