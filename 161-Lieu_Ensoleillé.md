@@ -2,7 +2,7 @@
 
 > **
 
-La zone immédiattement au sud d'un batiment - à l'angle où le soleil tombe - doit être développée et conçue en lieu où les gens se chauffent au soleil.
+La zone immédiatement au sud d'un batiment - à l'angle où le soleil tombe - doit être développée et conçue en lieu où les gens se chauffent au soleil.
 
 _Par conséquent,_
 
