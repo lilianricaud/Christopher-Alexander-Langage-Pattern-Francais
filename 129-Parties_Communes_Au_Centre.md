@@ -1,5 +1,7 @@
 # 129 - Parties Communes Au Centre
 
+> **
+
 Aucun groupe social, famille, travail, école ne peut survivre sans des contacts informels constant entre ses membres.
 
 _Par conséquent,_
