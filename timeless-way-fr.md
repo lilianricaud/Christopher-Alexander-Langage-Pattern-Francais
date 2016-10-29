@@ -15,7 +15,7 @@ Pour cherche la manière intemporelle, nous devons d'abord connaitre la qualité
 
 2. Il y a une qualité centrale qui est le critère à la base de la vie et de l'esprit dans un humain, une ville, un batiment ou la nature sauvage. Cette qualité est objective et précise mais elle ne peut pas être nommée.
 
-3. La recherche que nous menons pour cette qualité, dans nos propres vies, est la recherche centrale de n'importe quelle personne, et le *crux* (coeur?) de l'histoire de n'importe quelle personne. C'est la recherche de ces moments et situations où nous sommes le plus vivant.
+3. La recherche que nous menons pour cette qualité, dans nos propres vies, est la recherche centrale de n'importe quelle personne, et le coeur de l'histoire de n'importe quelle personne. C'est la recherche de ces moments et situations où nous sommes le plus vivant.
 
 4. Afin de définir cette qualité dans des batiments et des villes, nous devons commencer par comprendre que le caractère de chaque lieu lui est donné par certains patterns d'évènements qui n'arrètent pas de s'y répèter.
 
