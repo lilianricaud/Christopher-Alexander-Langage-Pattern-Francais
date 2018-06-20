@@ -6,4 +6,4 @@ Les verts et gris des couloirs d'hopitaux et de bureaux sont déprimants et froi
 
 _Par conséquent,_
 
-Choisir des couleurs de surface qui ensmeble avec la couleur de la lumière naturelle, la lumière réfléchie, et les lumières artificielles, crée une lumière chaude dans les pièces.
+Choisir des couleurs de surface qui ensemble avec la couleur de la lumière naturelle, la lumière réfléchie, et les lumières artificielles, crée une lumière chaude dans les pièces.
