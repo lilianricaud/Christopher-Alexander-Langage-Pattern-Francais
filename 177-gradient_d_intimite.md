@@ -2,7 +2,7 @@
 
 > **
 
-A moins que les espaces d'u nbatiment soient arrangés dans une séquence qui corresponde à leur degré d'intimité, les visites d'étrangers, amis, invités, clients, famille, seront toujours un peu génante.
+A moins que les espaces d'un batiment soient arrangés dans une séquence qui corresponde à leur degré d'intimité, les visites d'étrangers, amis, invités, clients, famille, seront toujours un peu génante.
 
 _Par conséquent,_
 
