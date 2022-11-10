@@ -75,4 +75,4 @@ Une fois que nous avons bati la porte/l'entrée, nous pouvons passer à travers 
 
 Et pourtant la manière intemporelle n'est pas complète, et ne génèrera pas pleinement la qualité sans nom, avant que nous laissions la porte/l'entrée derrière nous.
 
-27. En fait ce caractère sans age n'a, au final, rien à voir avec les langages. Les langages et les processus qui naissent d'eux, relache plutôt l'ordre fondamental qui est est inné en nous. Ils ne nous apprennent pas, ils nous rappellent seulement ce que nous savons déja, et de ce que nous decrions découvrir à nouveau et à nouveau encore, quand nous abandonnons nos idées et opinions, et faisons exactement ce qui émerge de nous mêmes.
+27. En fait ce caractère sans age n'a, au final, rien à voir avec les langages. Les langages et les processus qui naissent d'eux, libère plutôt l'ordre fondamental qui est est inné en nous. Ils ne nous apprennent pas, ils nous rappellent seulement ce que nous savons déja, et de ce que nous decrions découvrir à nouveau et à nouveau encore, quand nous abandonnons nos idées et opinions, et faisons exactement ce qui émerge de nous mêmes.
